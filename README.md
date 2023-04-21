@@ -1,7 +1,7 @@
 # zonanusantara.com
 Zonanusantara.com: A Trusted Source of Information for the Indonesian Public
 
-Zonanusantara.com is an online media outlet in Indonesia that has been providing the latest news and information on various topics since its establishment a few years ago. This media outlet has become one of the most trusted sources of information for the Indonesian public, thanks to its commitment to producing high-quality and informative content.
+https://zonanusantara.com/ is an online media outlet in Indonesia that has been providing the latest news and information on various topics since its establishment a few years ago. This media outlet has become one of the most trusted sources of information for the Indonesian public, thanks to its commitment to producing high-quality and informative content.
 
 One of the strengths of Zonanusantara.com is its team of professional and competent journalists. These journalists produce up-to-date news and information on politics, economics, social culture, tourism, education, and law in Indonesia. They adhere to the principles of journalism that prioritize truth, justice, and balance in reporting, ensuring that the content they produce is both accurate and informative.
 
